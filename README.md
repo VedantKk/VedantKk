@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vedant Kurundkar
 - 👀 I’m interested in ...Software development
-- 🌱 I’m currently learning ...Enginerring
+- 🌱 I’m working profession
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...vedantkurundkar123@gmail.com
 
